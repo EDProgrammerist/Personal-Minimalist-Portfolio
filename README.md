@@ -1,1 +1,1 @@
-#My Minimalist Collection
+Minimalist Collection
